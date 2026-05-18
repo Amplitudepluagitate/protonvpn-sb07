@@ -1,4 +1,4 @@
-# 
+# smart Kaspersky Total Security for PC scripts is the best Kaspersky Total Security for PC scripts with scheduled-scans and anti-adware. Safe, reliable, and optimized for maximum
 
 
 
